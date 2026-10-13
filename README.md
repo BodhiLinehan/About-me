@@ -1,0 +1,1 @@
+My name is Bodhi! I am 19 years old an an aspiring technological enthusiast currently in pursuit of my electrical engineering degree at Oregon State University. I've grown up neurodivergent, and it is rapidly evolving technology that fundamentally changed the trajectory of my life. I am interested in helping cultivate these same things for others
